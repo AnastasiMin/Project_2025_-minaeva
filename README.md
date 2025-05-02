@@ -1,0 +1,8 @@
+# Project_2025_-minaeva![4ск](https://github.com/user-attachments/assets/aac3d21d-5344-40c2-a973-36c13def9345)
+![1скк](https://github.com/user-attachments/assets/55f1cd87-ee75-447d-b5d9-bf9dc0f0a55f)
+![2скк](https://github.com/user-attachments/assets/4bf30273-1611-4046-9177-67083bcf2f73)
+![3скк](https://github.com/user-attachments/assets/138d1dc6-b943-4a9c-9008-841620adf862)
+![4скк](https://github.com/user-attachments/assets/768e5851-61c9-416b-958b-698fd4be9c3e)
+![1ск](https://github.com/user-attachments/assets/dbb64304-5078-4049-9f73-2e3ed917193a)
+![2ск](https://github.com/user-attachments/assets/eea6eb96-cc4a-42b1-91d8-a6a549088279)
+![3ск](https://github.com/user-attachments/assets/ae5bc437-2517-4fa7-8a78-6129751f965f)
